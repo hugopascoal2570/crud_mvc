@@ -1,0 +1,1 @@
+vish mano, deu erro ai parceiro
